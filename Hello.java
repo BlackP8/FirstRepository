@@ -1,1 +1,1 @@
-Hello nigger!!!
+Yo nigger!!!
